@@ -1,0 +1,3 @@
+Selamat datang di Kyy's Pizzería Famosa, destinasi pilihan Anda untuk menikmati cita rasa autentik Italia yang tiada tanding. Terletak di jantung kota, kami mengundang Anda untuk menikmati pengalaman kuliner yang memikat dengan menu pilihan kami yang lezat dan atmosfer yang ramah.
+
+Di Kyy's Pizzería Famosa, kami memadukan tradisi Italia dengan sentuhan inovatif, menyajikan beragam hidangan pizza yang diolah dengan hati-hati menggunakan bahan-bahan segar dan berkualitas tinggi. Dari varian klasik hingga kreasi unik kami, setiap irisannya adalah perpaduan sempurna antara keju lembut, saus tomat segar, dan berbagai topping yang menggugah selera.
